@@ -1,4 +1,5 @@
 Hello I am ItzKAOfficial
 I Create HTML Websites & Loads More!
-Please Make Sure To Check Out My Discord!
+Want To Contact Me?
+Contact Me On Discord!
 Discord Username: Official#1234
