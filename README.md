@@ -1,3 +1,7 @@
-About Me:
+## Information
 
-Programmer, Developing New Applications!
+Developing Projects, Websites, Applications & More!
+
+©️ Copyrighted By ItzKAOffiical
+
+
